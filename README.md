@@ -11,3 +11,6 @@
 # 5. ?
 # 6. -
 # 7. 
+# 8. I Do Not Make The Claim That This Was The Joke.
+# 9. I Do Not Believe That A Gay Joke Exists.
+# 0. -
