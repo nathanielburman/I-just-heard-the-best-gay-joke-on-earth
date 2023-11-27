@@ -5,9 +5,9 @@
 ### Here's what I can remember, it is so gentle, its, ridiculously, funny. 
 
 # 1. How, many, gays, does, it, take, to, screw, a, ... ... ... lightbulb, in in in in in in in in in in in in a closet?
-# 2. in
+# 2. in = (not IN)
 # 3. ?
-# 4. out
+# 4. out (not OUT)
 # 5. ?
 # 6. -
 # 7. 
