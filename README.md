@@ -15,4 +15,4 @@
 # 9. Do I Not Believe That A Gay Joke Exists.
 # 0
 
-### symmetry eliptical infinities = Rng = (really NOT gay)
+### symmetry eliptical infinities = Rng = (really NOT gay) (Random number generators)
