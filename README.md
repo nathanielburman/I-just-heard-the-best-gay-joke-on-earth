@@ -7,3 +7,7 @@
 # 1. How, many, gays, does, it, take, to, screw, a, ... ... ... lightbulb, in in in in in in in in in in in in a closet?
 # 2. in
 # 3. ?
+# 4. out
+# 5. ?
+# 6. -
+# 7. 
